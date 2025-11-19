@@ -77,7 +77,7 @@
 ---
 
 ## 📫 Contact Me  
-📧 Email: yourmail@gmail.com  
+📧 Email: rabighoshamartya@gmail.com  
 🌐 Portfolio: coming soon...
 
 ---
